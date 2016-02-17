@@ -3,26 +3,34 @@
 A hearty, flavorful curry. Great over rice or with bread. Reheats perfectly.
 
 ## Ingredients
+
 #### Aromatics
+
 * 1 clove garlic
-* thumb's length fresh minced ginger
+* Thumb-length minced ginger
 * 1 shallot (optional)
+
 #### Spices
+
 * 1 tablespoon garam masala
 * 1 tablespoon curry powder
 * 3/2 teaspoon cayan pepper powder
 * teaspoon tumeric (optional)
 * pinch of ground cloves (optional)
+
 #### Volume, Filler, Meat and Potatoes
-* Can of coconut milk
+
+* can of coconut milk
 * can of chickpeas
 * can of diced tomatoes
-* 1lb chicken
+* 1 lb chicken
 * 1 yellow onion
 * Can of peas (optional)
+
 #### Other
-* Tablespoon-ish of oil
-* 1 habanero pepper (optional)
+
+* tablespoon-ish of oil
+* 1 habanero pepper (optional >;)
 * rice or bread
 
 ## Directions
