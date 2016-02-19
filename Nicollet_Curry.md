@@ -41,5 +41,5 @@ Heat oil in pan over med-high heat. Add **aromatics** and fry for 3 minutes unti
 Adjust heat to a light simmer, and add **coconut milk**, **chickpeas**, and **peas**. Simmer until chicken is cooked about, 10 minutes.
 
 ## Variations
-Add **potatoes** instead of chickpeas. Dice them into 0.5cm cubes. They take a lot longer to cook, so add them right after the diced tomatoes, and simmer for 20 minutes.
+Add **potatoes** instead of chickpeas. Dice them into 1/2-inch cubes. They take a lot longer to cook, so add them right after the diced tomatoes, and simmer for 20 minutes.
 
